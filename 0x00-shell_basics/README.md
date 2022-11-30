@@ -1,1 +1,1 @@
-Bye betty
+Bye dir
